@@ -1,6 +1,5 @@
-B
+njn vcios b
 sfbvn iuha 
 egvhq98b v
-bsgd()
-{hdfhhb
-}
+bhb
+
